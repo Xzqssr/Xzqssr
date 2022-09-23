@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Xzqssr a programmer
+- 👋 Hi, I’m @Xzqssr,just a coder.
